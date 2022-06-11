@@ -1,4 +1,3 @@
-- Hi, I’m @LuxxieLight!
-- I’m interested in coding submods for MAS.
-- I’m currently learning how to code and use this app lol.
-- I’m looking to collaborate on none so far.
+- Hello, I'm Luxxie! I'm mostly active in Reddit.
+- I like playing games such as Genshin Impact.
+- I spend time with my Monika, Mochi! <3
